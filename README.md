@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CristinaPrevir
 - 👀 I’m interested in Design
-- 🌱 I’m currently learning UI/UX
+- 🌱 I’m currently learning UI/UX, AI
 - 💞️ I’m looking to collaborate on AI projects, UI/UX projects, space sience asossiated projects
 - 📫 How to reach me @Rista1212 in Telegram, Cristina Previr in Twitter 
 
